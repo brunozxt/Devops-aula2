@@ -1,3 +1,3 @@
 # Devops-aula2
-Super men 
-thor
+black en black
+panigat discol
