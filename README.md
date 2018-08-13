@@ -1,4 +1,3 @@
 # Devops-aula2
-Super men 
-Homen aranha 
-homem furmga 
+black en black
+panigat discol
