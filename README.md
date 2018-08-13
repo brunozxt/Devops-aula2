@@ -1,3 +1,4 @@
 # Devops-aula2
 Super men 
-thor
+Homen aranha 
+homem furmga 
